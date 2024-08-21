@@ -18,4 +18,4 @@ Finally, here's a [simple website](https://scotland-public.krayorn.com/) about a
 
 ## Contact
 
-If you want to reach me, feel free to send me a DM on [X/Twitter](https://x.com/Krayorn) or an email at *me@krayorn.com*gi
+If you want to reach me, feel free to send me a DM on [X/Twitter](https://x.com/Krayorn) or an email at *me@krayorn.com*
